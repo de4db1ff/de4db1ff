@@ -42,3 +42,6 @@
                                                                 =+++***. .*****:          
                                                                 ::--:.   =*+++*.          
 </div>
+
+![](https://count.getloli.com/get/@de4db1ff)
+
